@@ -84,7 +84,7 @@
 ## ✉️ Reach Out
 
 📫 **Email:** [shreyareddy.edulakanti@sjsu.edu](mailto:shreyareddy.edulakanti@sjsu.edu)  
-💼 **LinkedIn:** [linkedin.com/in/shreya-edulakanti]([https://linkedin.com/in/shreya-edulakanti](https://www.linkedin.com/in/shreya-reddy-edulakanti/))
+💼 **LinkedIn:** [([https://www.linkedin.com/in/shreya-reddy-edulakanti/)](https://www.linkedin.com/in/shreya-reddy-edulakanti/))
 
 ---
 
